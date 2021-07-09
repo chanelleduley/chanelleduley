@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chanelleduley
-- 👀 I’m interested in birdwatching
+- 👀 I’m interested in being interested
 - 🌱 I’m currently learning economics
-- 💞️ I’m looking to collaborate on econometric projects / data viz
+- 💞️ I’m looking to collaborate on financial/macro/international econ projects
 - 📫 How to reach me chanelle.duley@auckland.ac.nz
